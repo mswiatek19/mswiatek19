@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mswiatek19
+- 👀 I’m interested in sports/hard sci-fi literature/ai
+- 🌱 I’m currently learning python
+- 📫 How to reach me: maciejswiatek0511@gmail.com
+- 😄 Pronouns: he/his
